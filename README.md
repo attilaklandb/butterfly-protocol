@@ -1,3 +1,4 @@
+![Butterfly Protocol](Butterfly%20Protocol_%20Elegant%20Tech-Fantasy%20Branding.png)
 # 🦋 Butterfly Protocol
 
 **Lazy & Bald Software Corporation proudly introduces**
