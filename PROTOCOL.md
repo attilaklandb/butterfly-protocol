@@ -279,6 +279,6 @@ These identifiers, apart from the previously established OQ-001, are provisional
 
 ---
 
-*Lazy & Bald Software Corporation*
+*Lazy & Bald Software Corporation is a fictional name used for historical and humorous purposes. It is not a registered company or legal entity.*
 
 *Management responsibilities: classified.*
